@@ -1,0 +1,13 @@
+# IOC-Test
+
+https://perfectshinehair.co.uk/gymrc
+http://liliasixtos.com/onmos
+communityconnectionsinc.com
+http://195.214.252.110:50273/Mozi.m
+callproc.com
+201.217.28.37
+198.235.24.173
+195.63.24.198
+a9effadaaf45280c79984be5266e829b
+3c212baf7e6dc3f279339e978ee97bd6
+1056133be70f5ab824e2508a8c3045a8
